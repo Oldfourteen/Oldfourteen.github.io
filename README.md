@@ -11,5 +11,5 @@
 
 
 <br>服务器官方WIKI（可对游玩进行参考~）
-https://www.yuque.com/oldfourteen/lif1lb?#
+https://www.yuque.com/oldfourteen/lif1lb/exn6h1rlarhvzxgu
 </div>
