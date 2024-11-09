@@ -1,7 +1,7 @@
 
 <div align="center">
 
-# Minecraft server website
+# 我的世界忆往昔服务器
 Simple, clean website for minecraft servers. Everything is customizable.
 <br>
 <br>
