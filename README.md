@@ -7,7 +7,7 @@
 <br>管理员QQ：1851865014
 <br>
 <br>
-<img src="https://tutu.to/image/RB8ej " alt="示例图片">
+<img src="https://i.imgur.com/pM5JUDS.png" alt="示例图片">
 
 
 <br>服务器官方WIKI（可对游玩进行参考~）
