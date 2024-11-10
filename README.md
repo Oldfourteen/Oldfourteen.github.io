@@ -8,7 +8,7 @@
     <br>服务器官方交流群：1026753162
 <br>
 <br>
-<img src="https://i.imgur.com/pM5JUDS.png" alt="示例图片">
+<img src='https://image.m-c.top/?/images/2024/11/10/IFG3XVBIEM/HerinerMC.png' />
 
 
 <br>服务器官方WIKI（可对游玩进行参考~）
