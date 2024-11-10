@@ -9,6 +9,7 @@
 <br>
 <br>
 <img src='https://image.m-c.top/?/images/2024/11/10/IFG3XVBIEM/HerinerMC.png' />
+<img src='https://image.m-c.top/?/images/2024/11/10/2oH4eTq36V/QQ20241110-110957.png' />
 
 
 <br>服务器官方WIKI（可对游玩进行参考~）
